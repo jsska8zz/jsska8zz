@@ -1,1 +1,1 @@
-"I'm not gonna run away, I never go back on my word! That's my nindo: my ninja way!"
+"I can't forgive you for what you've done, and I still hate you... But Jiraiya-sensei believed in me, and I believe in what he believed in. That's my answer! So I won't kill you. I'll find peace, and I'll break this curse! If there is such a thing as peace, I will find it. I won't give up!"
